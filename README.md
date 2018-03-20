@@ -1,1 +1,0 @@
-# danielgarciajuarrero.github.io
